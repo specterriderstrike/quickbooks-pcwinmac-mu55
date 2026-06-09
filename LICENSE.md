@@ -1,4 +1,4 @@
-# 
+# Personalizado QuickBooks flujo de trabajo para Mac OS | Gratuito QuickBooks flujo de trabajo para PC Windows. Con exportación de datos y soporte multi-dispositivo — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
